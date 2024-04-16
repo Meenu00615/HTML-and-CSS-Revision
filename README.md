@@ -9,5 +9,8 @@ CSS Basics_1:
 
 ![image](https://github.com/Meenu00615/HTML-and-CSS-Revision/assets/149779716/bd225200-ab5f-4767-93a7-b07702283f80)
 
+![image](https://github.com/Meenu00615/HTML-and-CSS-Revision/assets/149779716/27e4161d-eb6f-41c2-8387-3d91d05875df)
+
+
 
 
