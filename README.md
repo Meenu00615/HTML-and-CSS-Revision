@@ -11,6 +11,9 @@ CSS Basics_1:
 
 ![image](https://github.com/Meenu00615/HTML-and-CSS-Revision/assets/149779716/27e4161d-eb6f-41c2-8387-3d91d05875df)
 
+https://github.com/Meenu00615/HTML-and-CSS-Revision/assets/149779716/2ba26e49-ee90-4fbb-9840-9a63c5ddc623
+
+
 
 
 
