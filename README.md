@@ -13,6 +13,9 @@ CSS Basics_1:
 
 https://github.com/Meenu00615/HTML-and-CSS-Revision/assets/149779716/2ba26e49-ee90-4fbb-9840-9a63c5ddc623
 
+https://github.com/Meenu00615/HTML-and-CSS-Revision/assets/149779716/c908fe75-ea7e-405f-bd34-8cd95710cdb7
+
+
 
 
 
